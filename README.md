@@ -4,5 +4,5 @@ putting this here because I'm currently rmking my rentry...
 - changing interests constantly :3
 - current interests: little misfortune, epic: the musical, daybreak 2, running man animation, mouthwashing 
 - LITTLE MISFORTUNE FANS INT PLS ILY ALL
-  comf characters: hiro from little misfortune , swansea from mouthwashing , gai from running man animation !!
+- comf characters: hiro from little misfortune , swansea from mouthwashing , gai from running man animation , jun from daybreak 2 !!
 - [basic dni criteria](https://basic-dni.crd.co/)
