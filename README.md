@@ -3,3 +3,4 @@
 - changing interests constantly :3
 - current interests: little misfortune, epic: the musical, daybreak 2, running man animation, mouthwashing 
 - LITTLE MISFORTUNE FANS INT PLS ILY ALL
+- [basic dni criteria](https://basic-dni.crd.co/)
