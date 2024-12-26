@@ -31,3 +31,13 @@
 <p align="center">
   ♡𝅼 I really really appreciate crowns or people who happen to be familliar with my fandom!!
 </p>
+
+<h2 align="center">
+  ✦ DNI AND IWC
+</h2>
+<h6 align="center">
+  <b> bold = dni‎ </b> ‎ ‎ ‎ ‎ <i> italics </i> = dniuf/ik you‎ ‎ ‎ ‎ ‎ none = iwc/can adjust
+</h6>
+<p align="center">
+  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> mouthwashing </i>, slur users
+</p>
