@@ -12,3 +12,12 @@
 <p align="center">
   <i> gmt +8 </i> ‎ ‎ ‎ ‎ 𝜗𝜚 ‎ ‎ ‎ ‎ t & j ♡‎
 </p>
+
+<h2 align="center">
+  ✦ BYI 
+</h2>
+<p align="center">
+  ♡𝅼 I normally don't approach first unless I feel comfortable enough to approach you first !! you're free to approach tho
+  ♡𝅼 I change interests almost very constantly!!
+  ♡𝅼 I talk a lot about my interests when I'm comfortable
+</p>
