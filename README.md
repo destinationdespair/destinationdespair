@@ -17,7 +17,17 @@
   ✦ BYI 
 </h2>
 <p align="center">
-  ♡𝅼 I normally don't approach first unless I feel comfortable enough to approach you first !! you're free to approach tho
+  ♡𝅼 I normally don't approach first unless I feel comfortable enough !! you're free to approach tho, I'll try to respond asap if I can !
+</p>
+<p align="center">
+  ♡𝅼 If I do not respond or interact back, I am likely afk or offtab ! Do whisper me if this is the case !!
+</p>
+<p align="center">
   ♡𝅼 I change interests almost very constantly!!
+</p>
+<p align="center">
   ♡𝅼 I talk a lot about my interests when I'm comfortable
+</p>
+<p align="center">
+  ♡𝅼 I really really appreciate crowns or people who happen to be familliar with my fandom!!
 </p>
