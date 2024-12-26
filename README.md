@@ -29,7 +29,7 @@
   ♡𝅼 I talk a lot about my interests when I'm comfortable
 </p>
 <p align="center">
-  ♡𝅼 I really really appreciate crowns or people who happen to be familliar with my fandom!!
+  ♡𝅼 I really really appreciate crowns or people who happen to be familliar with my fandom!! Please int if you like anything I'm interested in!!
 </p>
 
 <h2 align="center">
@@ -40,4 +40,14 @@
 </h6>
 <p align="center">
   ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> mouthwashing </i>, slur users
+</p>
+
+<h2 align="center">
+  ✦ INTERESTS
+</h2>
+<h6 align="center">
+  <b> bold = big/current interest!!‎ </b> ‎ ‎ ‎ ‎ <i> italics </i> = like the media, dislike the fandom ‎ ‎ ‎ ‎ none = interest
+</h6>
+<p align="center">
+  ⊹‎ <b> fran bow </b> , <b> little misfortune </b>, <b> epic: the musical </b>, <b> daybreak 2 </b>, <b> running man animation </b>, <i> tadc </i>, <i> mouthwashing </i>, <b> laufey </b>, alien stage, gravity falls
 </p>
