@@ -34,6 +34,9 @@
 <p align="center">
   ♡𝅼 I really really appreciate crowns or people who happen to be familliar with my fandom!! Please int if you like anything I'm interested in!!
 </p>
+<p align="center">
+  ♡𝅼 I don't accept random friend requests.
+</p>
 
 <h2 align="center">
   ✦ DNI AND IWC
@@ -42,7 +45,7 @@
   <b> bold = dni‎ </b> ‎ ‎ ‎ ‎ <i> italics </i> = dniuf/ik you‎ ‎ ‎ ‎ ‎ none = iwc/can adjust
 </h6>
 <p align="center">
-  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> fpe </i>, <i> mouthwashing </i>, slur users
+  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> fpe </i>, <i> dandy's world </i>, <i> mouthwashing </i>, slur users
 </p>
 
 <h2 align="center">
