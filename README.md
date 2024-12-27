@@ -29,6 +29,9 @@
   ♡𝅼 I talk a lot about my interests when I'm comfortable
 </p>
 <p align="center">
+  ♡𝅼 I have mood swings, and I type dryly or go nv when in a bad mood.
+</p>
+<p align="center">
   ♡𝅼 I really really appreciate crowns or people who happen to be familliar with my fandom!! Please int if you like anything I'm interested in!!
 </p>
 
@@ -39,7 +42,7 @@
   <b> bold = dni‎ </b> ‎ ‎ ‎ ‎ <i> italics </i> = dniuf/ik you‎ ‎ ‎ ‎ ‎ none = iwc/can adjust
 </h6>
 <p align="center">
-  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> mouthwashing </i>, slur users
+  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> fpe </i>, <i> mouthwashing </i>, slur users
 </p>
 
 <h2 align="center">
