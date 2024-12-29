@@ -55,5 +55,5 @@
   <b> bold = big/current interest!!‎ </b> ‎ ‎ ‎ ‎ <i> italics </i> = like the media, dislike the fandom ‎ ‎ ‎ ‎ none = interest
 </h6>
 <p align="center">
-  ⊹‎ <b> fran bow </b> , <b> little misfortune </b>, <b> epic: the musical </b>, <b> daybreak 2 </b>, <b> running man animation </b>, <i> tadc </i>, <i> mouthwashing </i>, <b> laufey </b>, alien stage, gravity falls
+  ⊹‎ <b> fran bow </b> , <b> little misfortune </b>, <b> epic: the musical </b>, <b> daybreak 2 </b>, <b> running man animation </b>, squid game, <i> tadc </i>, <i> mouthwashing </i>, <b> laufey </b>, alien stage, gravity falls
 </p>
