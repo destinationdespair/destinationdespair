@@ -37,6 +37,9 @@
 <p align="center">
   ♡𝅼 I don't accept random friend requests.
 </p>
+<p align="center">
+  ♡𝅼 Mostly nv towards people I don't know
+</p>
 
 <h2 align="center">
   ✦ DNI AND IWC
