@@ -45,7 +45,7 @@
   <b> bold = dni‎ </b> ‎ ‎ ‎ ‎ <i> italics </i> = dniuf/ik you‎ ‎ ‎ ‎ ‎ none = iwc/can adjust
 </h6>
 <p align="center">
-  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <i> hh/hb </i>, <i> tadc </i>, <i> fpe </i>, <i> dandy's world </i>, <i> mouthwashing </i>, slur users
+  ⊹‎ <b> basic dni criteria </b> , <b> tcoaal </b>, <b> ybc </b> <i> hh/hb </i>, <i> tadc </i>, <i> fpe </i>, <i> dandy's world </i>, <i> mouthwashing </i>, slur users
 </p>
 
 <h2 align="center">
