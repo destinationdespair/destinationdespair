@@ -1,2 +1,2 @@
-### i c'link when I find a character i **heavily** relate to ! please don't treat me weirdly, thx :3
+### hi, I'm Sealie!! Read my rentry if you wanna know more :D
 ![](https://media.tenor.com/JeqJ1GnXoW4AAAAM/looking-around-min-su.gif)
