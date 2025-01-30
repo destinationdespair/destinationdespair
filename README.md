@@ -1,1 +1,1 @@
-![](https://media.tenor.com/JeqJ1GnXoW4AAAAM/looking-around-min-su.gif)
+![](https://file.garden/Z1OpYh3OMHUM4tMG/Shadow_milk_gacha_sequence_1_animation.gif)
