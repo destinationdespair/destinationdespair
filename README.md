@@ -1,1 +1,3 @@
-![](https://pa1.aminoapps.com/7977/5690168c79d380be38883d88256525e2293bf31cr1-397-397_00.gif)
+<div align="center">
+  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Untitled711_20250226222902.png">
+</div>
