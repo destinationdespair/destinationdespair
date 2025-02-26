@@ -1,1 +1,1 @@
-![](https://static.wikia.nocookie.net/omori/images/4/4f/DWHERO17.png/revision/latest?cb=20220624200033)
+![](https://pa1.aminoapps.com/7977/5690168c79d380be38883d88256525e2293bf31cr1-397-397_00.gif)
