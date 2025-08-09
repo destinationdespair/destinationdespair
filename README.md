@@ -1,4 +1,3 @@
-<p> 
-  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/art_for_sealie111_20250806202928.jpg"> </img>
+<p align=center> 
+  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Screenshot%202025-08-09%20202123.png"> </img>
 </p>
-<h4 align=center> art by @ terrifiedviolin ! heh ... thx vio !!! </h4>
