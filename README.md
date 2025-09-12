@@ -1,3 +1,3 @@
 <p align=center> 
-  idk what to put here, hai..!
+  DANGANRONPA 2x2 ‼️‼️‼️ MAKE MIKAN, HIYOKO, AND TERUTERU NOT WEIRD, AND MY LIFE IS YOURS 🗣️🗣️🗣️🗣️
 </p>
