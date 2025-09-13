@@ -1,3 +1,3 @@
 <p align=center> 
-  "teruteru and kazuichi had potential as characters and couldve been great if they weren't weirdos" i say as i actively bash on them but find them amusing at the same time
+  i could go on for HOURS about how much potential teruteru, mikan, and kazuichi could've had if they weren't WEIRDOS (please make them bareable in dgrp 2x2)
 </p>
