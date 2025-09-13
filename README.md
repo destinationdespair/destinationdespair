@@ -1,3 +1,3 @@
 <p align=center> 
-  DANGANRONPA 2x2 ‼️‼️‼️ MAKE MIKAN, HIYOKO, AND TERUTERU NOT WEIRD AND ACTUALLY BAREABLE, AND MY LIFE IS YOURS 🗣️🗣️🗣️🗣️
+  justice WILL be served to byakuya, teruteru, mahiru, peko, hiyoko, ibuki, mikan, gundham, nekomaru, nagito, and chiaki!!!
 </p>
