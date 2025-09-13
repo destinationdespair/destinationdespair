@@ -1,3 +1,6 @@
-<p align=center> 
-  how does someone like a character yet actively bash on them at the same time (I'm someone) (more specifically kazuichi and teruteru) (please let them be bareable in dgrp2x2)
+<p align=center> THEY MEAN SO MUCH TO ME!! </p>
+
+<p align="center">
+  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Screenshot%202025-09-13%20184209.png" />
+  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Screenshot%202025-09-13%20184729.png" />
 </p>
