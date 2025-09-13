@@ -1,3 +1,3 @@
 <p align=center> 
-  i could go on for HOURS about how much potential teruteru, mikan, and kazuichi could've had if they weren't WEIRDOS (please make them bareable in dgrp 2x2)
+  how does someone like a character yet actively bash on them at the same time (I'm someone)
 </p>
