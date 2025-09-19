@@ -1,4 +1,3 @@
 <p align="center">
-  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Screenshot%202025-09-13%20184209.png" />
-  <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Screenshot%202025-09-13%20184729.png" />
+  i LOVE soniaki and twoteru guys ... please dont jump me T_T
 </p>
