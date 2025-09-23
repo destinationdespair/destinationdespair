@@ -1,3 +1,3 @@
 <p align="center">
-  wip
+  wip , links r outdated
 </p>
