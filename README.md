@@ -1,3 +1,3 @@
 <p align="center">
-  i love everyone and i mean EVERYONE in the sdr2 cast they mean so much to me,,,
+  "b-b-but nagito set teruteru up in chapter1!!!" who cares bro i like both of them @ once (because it's apparently rare to like them both for some reason)
 </p>
