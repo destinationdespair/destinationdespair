@@ -1,3 +1,3 @@
 <p align="center">
-  DANGANRONPA PLEASE DO JUSTICE TO TERUTERU AND TWOGAMI PELAPLEPLEPEW IVE BEEN BEGGING FOR YEARS
+  i love the whole sdr2 cast . including teruteru . i love them all i hope they all develop oh my god .
 </p>
