@@ -1,3 +1,3 @@
 <p align="center">
-    i love you sdr2 cast please dont explode
+    if teruteru, peko, and mikan die without developing in 2x2 im gonna THROW HANDS
 </p>
