@@ -1,3 +1,4 @@
 <p align="center">
-    if teruteru, peko, and mikan die without developing in 2x2 im gonna THROW HANDS
+    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/twoteru_banner.png" /> 
+    guys teruteru and twogami development will be real, teruteru will stop being weird, twogami actually gets his identity revealed, PELAPSLPELEASE TRUSTTU3Y3YDX
 </p>
