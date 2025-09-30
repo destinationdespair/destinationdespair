@@ -1,4 +1,4 @@
 <p align="center">
-    SOMEBODY M/W ME AS KAZUSOUDA / TWOTERU / BAKING SODA PLLLEAUSUDUUSE (platonic)
+    danganronpa fandom if you're seeing this rn please dont jump me
     <img src="https://file.garden/Z1OpYh3OMHUM4tMG/twoteru_banner.png" /> 
 </p>
