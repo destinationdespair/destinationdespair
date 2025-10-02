@@ -9,5 +9,5 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    liking teru && kaz && miu ≠ defending them
+    this readme's still a wip LMAO
 </p>
