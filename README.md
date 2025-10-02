@@ -9,7 +9,7 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ xtra : [ ]
+    ◠◠ ‎ xtra : i think you can tell BUT i LOVEE teruteru and kazuichi HOWEVER it does not mean I defend EITHER of them . 
 </p>
 <p align="center">
     this readme's still a wip LMAO
