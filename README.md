@@ -3,11 +3,11 @@
 </p>
 
 <p align="center">
-    sealie ‎ 𓎟𓎟 ‎ she / they ! ‎ ⸝⸝ ‎ multishipper && open to ships
+    🦭 ‎ sealie ‎ 𓎟𓎟 ‎ she / they ! ‎ ⸝⸝ ‎ multishipper && open to ships
 </p>
 <p align="center">
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    i do NOT defend teruteru and kazuichi btw (i'd beat them up with you ngl) (theyre fun to mess with)
+    liking teru && kaz && miu ≠ defending them
 </p>
