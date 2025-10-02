@@ -1,4 +1,4 @@
 <p align="center">
-    IT'S MY SON!!! HE'S SO SQUISHABLE!!! ^q^ (he's punchable too) (just because i love him doesn't mean i defend him)
+    IT'S MY SON!!! HE'S SO SQUISHABLE!!! ^q^ (he's punchable too btw feel free to kick his ass) (just because i love him doesn't mean i defend him)
     <img src="https://file.garden/Z1OpYh3OMHUM4tMG/%3AT" /> 
 </p>
