@@ -9,5 +9,8 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
+    ◠◠ ‎ xtra : [ ]
+</p>
+<p align="center">
     this readme's still a wip LMAO
 </p>
