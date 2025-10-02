@@ -9,7 +9,7 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ <b>xtra :</b> i think you can tell BUT i LOVEE teruteru and kazuichi HOWEVER it does not mean I defend EITHER of them . I'm not gonna go out of my way to call them saints because they're NOT and deserve their criticisms . i love them for reasons outside their weird shit .
+    ◠◠ ‎ <b>xtra :</b> i think you can tell BUT i LOVEE teruteru and kazuichi, HOWEVER it does not mean I defend EITHER of them . I'm not gonna go out of my way to call them saints because they're FAR FROM IT and deserve their hate and criticisms . i love them for reasons outside their weird shit .
 </p>
 <p align="center">
     this readme's still a wip LMAO
