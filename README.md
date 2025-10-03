@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    🦭 ‎ sealie ‎ 𓎟𓎟 ‎ she / they ! ‎ ⸝⸝ ‎ multishipper && open to ships
+    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ multishipper && open to ships
 </p>
 <p align="center">
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
