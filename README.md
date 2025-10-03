@@ -9,5 +9,5 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ <b>xtra :</b> i LOVEE teruteru, HOWEVER it does not mean I defend him . i will gladly let you beat that bitch in to a pulp .
+    ◠◠ ‎ [atabook](https://destinationdespair.atabook.org) ⊹ [rentry](https://rentry.co/ultimatec00k) WHY THE FUCK IS IT WONKY
 </p>
