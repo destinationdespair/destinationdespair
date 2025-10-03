@@ -9,5 +9,5 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ [atabook](https://destinationdespair.atabook.org) ⊹ [rentry](https://rentry.co/ultimatec00k) WHY THE FUCK IS IT WONKY
+    ◠◠ ‎ my code is being wonky ts is a wip
 </p>
