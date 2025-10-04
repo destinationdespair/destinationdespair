@@ -9,5 +9,5 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ my code is being wonky ts is a wip
+    ◠◠ ‎ i put tiny teruteru on some of my skins
 </p>
