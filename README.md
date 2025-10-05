@@ -9,5 +9,5 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ i put tiny teruteru on some of my skins
+    ◠◠ ‎ i swear i act nothing like teruteru
 </p>
