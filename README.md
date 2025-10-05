@@ -1,5 +1,5 @@
 <p align="center">
-    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/DRS_-_Teruteru_Hanamura_W_Rank_Card_01.webp" width="350" height="350" />    
+    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/ter.png" width="300" height="350" />    
 </p>
 
 <p align="center">
