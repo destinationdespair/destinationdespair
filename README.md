@@ -9,5 +9,5 @@
     c+h encouraged esp when alone ‎ ｡ ‎ preferrably w2i
 </p>
 <p align="center">
-    ◠◠ ‎ i swear i act nothing like teruteru
+<a align="center" href="https://rentry.co/ultimatec00k"> rentry </a> ‎ ‎ ٩(ˊᗜˋ )و ‎ ‎ <a align="center" href="https://destinationdespair.atabook.org/"> atabook </a>
 </p>
