@@ -9,5 +9,5 @@
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferrably w2i
 </p>
 <p align="center">
-<a align="center" href="https://rentry.co/ultimatec00k"> rentry </a> ‎ ‎ ｡ ‎ ‎ <a align="center" href="https://destinationdespair.atabook.org/"> atabook </a>  ‎ ‎ ｡ ‎ ‎ <a align="center" href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
+<a align="center" href="https://rentry.co/ultimatec00k"> rentry </a> ‎ ‎ ｡ ‎ ‎ <a align="center" href="https://sorrowfulseal.atabook.org/"> atabook </a>  ‎ ‎ ｡ ‎ ‎ <a align="center" href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
 </p>
