@@ -11,6 +11,3 @@
 <p align="center">
 <a align="center" href="https://rentry.co/ultimatec00k"> rentry </a> ‎ ‎ ｡ ‎ ‎ <a align="center" href="https://sorrowfulseal.atabook.org/"> atabook </a>  ‎ ‎ ｡ ‎ ‎ <a align="center" href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
 </p>
-<p align="center">
-    im remakinfg my rentry sooner or later i swear ill make it a different theme later
-</p>
