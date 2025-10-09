@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ multishipper && open to ships
+    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ ill upd rentry+ata theme l8er
 </p>
 <p align="center">
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferrably w2i
