@@ -9,5 +9,5 @@
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferrably w2i
 </p>
 <p align="center">
-    rmking links because they're lwk embarassing
+   <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ｡ ‎ other links are a wip
 </p>
