@@ -9,5 +9,5 @@
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferrably w2i
 </p>
 <p align="center">
-   <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
+   <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
 </p>
