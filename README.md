@@ -6,7 +6,7 @@
     🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ shitty @ socializing im so sorry
 </p>
 <p align="center">
-    c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferrably w2i
+    c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
 </p>
 <p align="center">
    <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
