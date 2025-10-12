@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ rentry in progress
+    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ shitty @ socializing im so sorry
 </p>
 <p align="center">
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferrably w2i
