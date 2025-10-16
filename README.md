@@ -15,7 +15,7 @@
     byi and extras because i havent made my rentry,,, 
 </h1>
 </p><p align="center">
-    normally unfiltered around close friends or friends from bsw
+    normally unfiltered and chaotic around close friends or friends from bsw
 </p>
 </p><p align="center">
     i talk about fixations a lot, a WHOLE lot, sometimes i make almost everything about them atp
