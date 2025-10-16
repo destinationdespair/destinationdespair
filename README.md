@@ -28,6 +28,9 @@
     danganronpa-related stuff because i'm into that atm
 </h1>
 </p><p align="center">
+    kinda on thin ice if you're those type of people who compare almost everyone (like kaede or miu or something) to teruteru . just because they're freaks doesn't mean they're teruteru 2.0 ???
+</p>
+</p><p align="center">
     i dont hate any of the 48 danganronpa students in the 3 main games and im overall respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp
 </p>
 
