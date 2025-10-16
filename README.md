@@ -9,7 +9,7 @@
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
 </p>
 <p align="center">
-    xtra: teruteru fans hmu ^3^ 
+    xtra: i love the sdr2 cast theyre all my children trust ^3^ 
 </p>
 <p align="center">
    <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
