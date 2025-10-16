@@ -34,7 +34,7 @@
     danganronpa-related stuff because i'm into that atm
 </h1>
 </p><p align="center">
-    i dont hate any of the 48 danganronpa students in the 3 main games and im overall respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp
+    i dont hate any of the 48 danganronpa students in the 3 main games and im overall open and respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp
 </p>
 
 </p><p align="center">
