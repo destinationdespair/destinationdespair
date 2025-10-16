@@ -9,8 +9,5 @@
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
 </p>
 <p align="center">
-    xtra: i dont hate any of the 48 students in danganronpa games i am NOT a hater
-</p>
-<p align="center">
    <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
 </p>
