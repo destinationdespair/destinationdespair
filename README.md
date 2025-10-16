@@ -42,7 +42,7 @@
 </p>
 
 </p><p align="center">
-    i am a teruteru and kazuichi lover... i am so sorry dont jump me i swear i dont defend either of them gng i just find them funnt from time to time T__T idm being friends with people who dislike them at all but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
+    i am a teruteru, mikan, and kazuichi lover... i am so sorry dont jump me i swear i dont defend either of them gng T__T idm being friends with people who dislike them at all !! but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
 </p>
 
 </p><p align="center">
