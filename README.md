@@ -34,7 +34,7 @@
     danganronpa-related stuff because i'm into that atm
 </h1>
 </p><p align="center">
-    i dont hate any of the 48 danganronpa students in the 3 main games and im overall open and respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp
+    i dont hate any of the 48 danganronpa students in the 3 main games and im overall open and respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp ! but i do criticize their writing a lot because let's be for real danganronpa's writing is so flawed 💔
 </p>
 
 </p><p align="center">
@@ -42,7 +42,7 @@
 </p>
 
 </p><p align="center">
-    i am a teruteru and kazuichi lover... i am so sorry dont jump me i swear i dont defend either of them gng T__T idm being friends with people who dislike them at all but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
+    i am a teruteru and kazuichi lover... i am so sorry dont jump me i swear i dont defend either of them gng i just find them funnt from time to time T__T idm being friends with people who dislike them at all but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
 </p>
 
 </p><p align="center">
