@@ -12,9 +12,21 @@
 </p>
 
 </h1><h1 align="center">
-    xtras because i havent made my rentry,,, danganronpa specific cus im into that atm
+    byi and extras because i havent made my rentry,,, 
 </h1>
+</p><p align="center">
+    normally unfiltered around close friends or friends from bsw
+</p>
+</p><p align="center">
+    i talk about fixations a lot, a WHOLE lot, sometimes i make almost everything about them atp
+</p>
+</p><p align="center">
+    i am SHITTY at socializing and approaching first T__T you're free to int first tho
+</p>
 
+</h1><h1 align="center">
+    danganronpa-related stuff because i'm into that atm
+</h1>
 </p><p align="center">
     i dont hate any of the 48 danganronpa students in the 3 main games and im overall respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp
 </p>
