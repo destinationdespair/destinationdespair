@@ -7,7 +7,26 @@
 </p>
 <p align="center">
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
-</p>
 <p align="center">
    <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
+</p>
+
+</h1><h1 align="center">
+    xtras because i havent made my rentry,,, danganronpa specific cus im into that atm
+</h1>
+
+</p><p align="center">
+    i dont hate any of the 48 danganronpa students in the 3 main games and im overall respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp
+</p>
+
+</p><p align="center">
+    i am a teruteru, kazuichi, and miu lover... i am so sorry dont jump me i swear i dont defend them gng T__T idm being friends with people who dislike them at all but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
+</p>
+
+</p><p align="center">
+    i make a lot of " i hope [ teru / kaz ] dies " jokes but for gags
+</p>
+
+</p><p align="center">
+    I LOVE GONTA AND RYOMA, FANS OF THEM INT WITH ME I LOVE YOU ALL
 </p>
