@@ -9,7 +9,7 @@
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
 </p>
 <p align="center">
-    xtra: i dont hate any of the 48 students in danganronpa games i am NOT a hater... i LOVE teruteru and ryoma,,, teruteru fans who dont constantly compare her to miu just to get their point across hmu rn,,,
+    xtra: i dont hate any of the 48 students in danganronpa games i am NOT a hater... i LOVE teruteru, miu, and ryoma,,, teruteru fans who dont constantly compare him to miu just to get their point across hmu rn,,,
 </p>
 <p align="center">
    <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
