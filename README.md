@@ -15,13 +15,16 @@
     byi and extras because i havent made my rentry,,, 
 </h1>
 </p><p align="center">
-    normally unfiltered and chaotic around close friends or friends from bsw
+    i am socially awkward, i'm SHITTY approaching first T__T you're free to int first tho if you want i'd be happy to interact back
+</p>
+</p><p align="center">
+    stuff i say might get repetitive because i run out of good stuff to say
+</p>
+</p><p align="center">
+    normally only unfiltered and chaotic around close friends or friends from bsw
 </p>
 </p><p align="center">
     i talk about fixations a lot, a WHOLE lot, sometimes i make almost everything about them atp
-</p>
-</p><p align="center">
-    i am SHITTY at socializing and approaching first T__T you're free to int first tho
 </p>
 </p><p align="center">
     i sometimes go semi or non-verbal ,,
