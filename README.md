@@ -20,11 +20,15 @@
 </p>
 
 </p><p align="center">
+    same goes for ships, i'm a heavy multishipper and as long as it isn't illegal or sounia as something actually romantic then hell yeah
+</p>
+
+</p><p align="center">
     i am a teruteru, kazuichi, and miu lover... i am so sorry dont jump me i swear i dont defend them gng T__T idm being friends with people who dislike them at all but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
 </p>
 
 </p><p align="center">
-    i make a lot of " i hope [ teru / kaz ] dies " jokes but for gags
+    i make a lot of " i hope [ teru / kaz ] dies " jokes for gags
 </p>
 
 </p><p align="center">
