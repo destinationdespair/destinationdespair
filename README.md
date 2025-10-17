@@ -14,41 +14,21 @@
 </h1><h1 align="center">
     byi and extras because i havent made my rentry,,, 
 </h1>
-</p><p align="center">
+<p align="center">
     i am socially awkward, i'm SHITTY approaching first T__T you're free to int first tho if you want i'd be happy to interact back
 </p>
-</p><p align="center">
+<p align="center">
     stuff i say might get repetitive because i run out of good stuff to say
 </p>
-</p><p align="center">
+<p align="center">
     normally only unfiltered and chaotic around close friends or friends from bsw
 </p>
-</p><p align="center">
+<p align="center">
     i talk about fixations a lot, a WHOLE lot, sometimes i make almost everything about them atp
 </p>
-</p><p align="center">
-    i sometimes go semi or non-verbal ,,
+<p align="center">
+    i sometimes go semi or non-verbal when I feel overwhelmed or when idk how to join a convo 
 </p>
-
-</h1><h1 align="center">
-    danganronpa-related stuff because i'm into that atm
-</h1>
-</p><p align="center">
-    i dont hate any of the 48 danganronpa students in the 3 main games and im overall open and respectful of opinions so you're free to befriend me no matter what character you like/hate in dgrp ! but i do criticize their writing a lot because let's be for real danganronpa's writing is so flawed 💔
-</p>
-
-</p><p align="center">
-    same goes for ships, i'm a heavy multishipper and as long as it isn't illegal or sounia as something actually romantic then hell yeah
-</p>
-
-</p><p align="center">
-    i am a teruteru, mikan, and kazuichi lover... i am so sorry dont jump me i swear i dont defend either of them gng T__T idm being friends with people who dislike them at all !! but then again if you're a HARDCORE hater that can't stand the sight of them at all then best not to int with me
-</p>
-
-</p><p align="center">
-    i make a lot of " i hope [ teru / kaz ] dies " jokes for gags
-</p>
-
-</p><p align="center">
-    I LOVE GONTA AND RYOMA, FANS OF THEM INT WITH ME I LOVE YOU ALL
+<p align="center">
+    random extra but if you wanna talk about how shitty danganronpa's writing is I am very very very open i love yapping about it
 </p>
