@@ -15,17 +15,14 @@
     byi and extras because i havent made my rentry,,, 
 </h1>
 <p align="center">
-    i am socially awkward, i'm SHITTY approaching first T__T you're free to int first tho if you want i'd be happy to interact back
+    i am socially awkward, i'm SHITTY at approaching first and keeping a convo going T__T you're free to int first tho if you want i'd be happy to interact back !!
 </p>
 <p align="center">
-    stuff i say might get repetitive because i run out of good stuff to say
+    stuff i say might get repetitive because i run out of good stuff to say and I may go silent midway if i run out of things to say
 </p>
 <p align="center">
     normally only unfiltered and chaotic around close friends or friends from bsw
 </p>
 <p align="center">
-    i talk about fixations a lot, a WHOLE lot, sometimes i make almost everything about them atp
-</p>
-<p align="center">
-    i sometimes go semi or non-verbal when I feel overwhelmed or when idk how to join a convo 
+    i talk about fixations a lot, a WHOLE lot, sometimes i make almost everything about them atp 💔
 </p>
