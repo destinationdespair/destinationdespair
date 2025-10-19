@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ bad at socializing im so sorry
+    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ i love gonta gokuhara my son,,
 </p>
 <p align="center">
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
