@@ -29,6 +29,3 @@
 <p align="center">
     i sometimes go semi or non-verbal when I feel overwhelmed or when idk how to join a convo 
 </p>
-<p align="center">
-    random extra but if you wanna talk about danganronpa I am very very very open i love yapping about it
-</p>
