@@ -15,6 +15,9 @@
     byi and extras because i havent made my rentry,,, 
 </h1>
 <p align="center">
+    feel free to c+h even if it isn't in my name ^__^ i love cuds :p !
+</p>
+<p align="center">
     i am socially awkward, i'm SHITTY at approaching first and keeping a convo going T__T you're free to int first tho if you want i'd be happy to interact back !!
 </p>
 <p align="center">
