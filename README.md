@@ -15,7 +15,7 @@
     byi and extras because i havent made my rentry,,, 
 </h1>
 <p align="center">
-    feel free to c+h even if it isn't in my name ^__^ i LOVEE cuds :p ! i really appreciate them, especially when im not sitting w/ anyone at the moment!! but if i im unsure if you're cuddling w/ me or you js spawned on top i might move away, so sorry T__T feel free to lmk if you want cuds or come up to me again!!!
+    feel free to c+h even if it isn't in my name ^__^ i LOVEE cuds :p ! i really appreciate them, especially when im not sitting w/ anyone at the moment!! but if i im unsure if you're cuddling w/ me or you js spawned on top i might move away unintentionally, so sorry T__T feel free to lmk if you want cuds or come up to me again!!!
 </p>
 <p align="center">
     i am socially awkward, i'm SHITTY at approaching first and keeping a convo going T__T you're free to int first tho if you want i'd be happy to interact back !!
