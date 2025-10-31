@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ i love the sdr2 cast theyre all my children
+    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ i ♡ the sdr2 cast theyre all my children
 </p>
 <p align="center">
     c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
