@@ -1,5 +1,5 @@
 <p align="center">
-    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/DRS_-_Gonta_Gokuhara_W_Rank_Card_08.webp" width="200" height="300" />    
+    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Screenshot%202025-11-08%20213236.png" width="200" height="300" />    
 </p>
 
 <p align="center">
