@@ -6,7 +6,7 @@
     🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ socially awkward
 </p>
 <p align="center">
-    c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ rentry wip
+    c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ read rentry for more
 <p align="center">
-   <a href="https://sorrowfulseal.atabook.org/"> atabook </a> ‎ ‎ ｡ ‎ <a href="https://en.pronouns.page/@sorrowfulseal"> prns page </a>
+   <a href="https://rentry.co/stitch-mouth"> rentry</a> ‎ ‎ ｡ ‎ <a href="https://sorrowfulseal.atabook.org/"> atabook </a>
 </p>
